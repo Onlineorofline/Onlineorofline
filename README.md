@@ -28,8 +28,7 @@ Some Facts
 
 •	Regarding use the guys give this MFP, the "talk by phone" seems to be the least important. Above this function are texting, listening to music, take pictures, and alarm clock.”
 
-
-
+Why you should go outside when you can do something at your home?  They are many examples of this idea that came during the last years: food, services, transport, shopping and now relationship. Is really common know one person that has an online friend,  keeping this online relations is easier than have a real life relation, and a lot of people is taking this as an new way to know people. In one way it's easier to keep this kind of relationships but it's also harder, now your life depend from a mobile phone phone and a WiFi connection, in case that you're not online the feeling it's awful in a lot of ways, you're wondering what is your friend doing, does he miss me? Is she worried? Will he be angry? Maybe something happen and she need me. A lot of questions can cross your mind, why? Because this can be real, because with strangers that in one way you will never know you can't be judge and in one way you know it and because of that you don't need to impress somebody, you don't need the new iPhone or the last jeans, or doesn't matter if your hair looks awful and because of this you can be yourself, because someone in somewhere is just like you and it's wondering if you're out there and with the internet you can have that immediate connection with someone just like you.
 
 The first steps to another life
 
